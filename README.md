@@ -9,7 +9,7 @@ Contact with me to get the Password of Zip file on :
   
  Show full video on YouTube : https://youtu.be/HAULcz-s8i4
 
-Show demo video on Instagram : In uploading on Instagram...
+Show demo video on Instagram : https://www.instagram.com/p/CMcrWVKgKlm
 
 🆔My YouTube Channel : http://youtube.com/erfan4lx
 
